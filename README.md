@@ -1,1 +1,1 @@
-# ocke-pocke
+# Just here to get inspired and to figure out if I want to learn how to code or not.![HSB Profilfoto nov 2019](https://user-images.githubusercontent.com/98678788/151687154-81bcec70-6f66-4875-8d9e-e54ecdded59c.jpg)
